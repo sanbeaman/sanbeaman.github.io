@@ -1,1 +1,0 @@
-# sanbeaman.github.io
